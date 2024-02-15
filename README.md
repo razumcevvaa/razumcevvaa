@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @razumcevvaa
+- 💶 I'm looking to collaborate on some cool project
